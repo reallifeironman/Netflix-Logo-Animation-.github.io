@@ -1,1 +1,1 @@
-Live Demo → https://anshumanbahekar.github.io/Netflix-Logo-Animation-.github.io/
+🔥 Live Preview → https://reallifeironman.github.io/Netflix-Logo-Animation-.github.io/
